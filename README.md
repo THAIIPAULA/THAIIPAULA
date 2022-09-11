@@ -7,12 +7,9 @@
 •1°𝓔𝓷𝓼𝓲𝓷𝓸 𝓶𝓮𝓭𝓲𝓸 
 • 𝓮𝓼𝓽𝓾𝓭𝓪𝓷𝓭𝓸 p𝓮𝓷𝓼𝓪𝓶𝓮𝓷𝓽𝓸 computacional🤔💡
 •utilizando js
-espero q aqui no github aprendo algo novos com vcs
-                                                                                                                                                                             📚 𝚙𝚛𝚎𝚝𝚎𝚗𝚍𝚘 𝚏𝚊𝚣𝚎𝚛 𝚏𝚊𝚌𝚞𝚕𝚍𝚊𝚍𝚎 
+espero q aqui no github aprendo algo novos com vcs                                                                                                                            📚 𝚙𝚛𝚎𝚝𝚎𝚗𝚍𝚘 𝚏𝚊𝚣𝚎𝚛 𝚏𝚊𝚌𝚞𝚕𝚍𝚊𝚍𝚎 
 •𝓹𝓮𝓭𝓲𝓪𝓽𝓻𝓪🩺 ou
 •𝓹𝓼𝓲𝓬ó𝓵𝓸𝓰𝓲𝓪🧐
-
-
 📚 𝙵𝚊𝚟𝚘𝚛𝚒𝚝𝚘𝚜 
 •𝓒𝓶 𝓔𝓾 𝓔𝓻𝓪 𝓐𝓷𝓽𝓮𝓼 𝓭𝓮 𝓥𝓬𝓬 
 •É 𝓐 𝓐𝓼𝓼𝓲𝓶 𝓠 𝓐𝓬𝓪𝓫𝓪 
